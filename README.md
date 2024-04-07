@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **maksat363132@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1v5iSPOkuMyWHY7yFwTB_XelUMnol4Zma/view?usp=drive_link](https://drive.google.com/file/d/1v5iSPOkuMyWHY7yFwTB_XelUMnol4Zma/view?usp=drive_link)
+- 📄 Know about my experiences       <a href="https://drive.google.com/file/d/1v5iSPOkuMyWHY7yFwTB_XelUMnol4Zma/view?usp=drive_link">Resume</a>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
